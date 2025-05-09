@@ -1,2 +1,2 @@
-# Jos-Ram-n-Rangel-Campos
+# Jose-Ramon-Rangel-Campos
 Sitio web
